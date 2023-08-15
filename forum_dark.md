@@ -43,3 +43,19 @@
 |[RANION](http://dozrkm62j2uysnqg57q35cangl2lpgdirhxbcc2yzpcgvfyowy7syxqd.onion)| ONLINE | Malware as a service |
 |[RANION](http://ni3kiymt4jc32baea356vhwurba44jabfklitpoqbrtgrhr5skyrixyd.onion)| ONLINE | Malware as a service |
 |[STEALER VIRUS](https://t.me/erna_channel)| ONLINE | Malware as a service |
+|[ALLWORLDCARDS](https://href.li/?http://awcardsqtyy2nzjz4bqwbccvv6xr4bdcwcgfyewd7gsx5mhh63c2lsad.onion)| OFFLINE |Leak market|
+|[AlphaBay (Dark i2p)](tnaefzkcnhryeusi7hdpqujqiqmnbtah3dmjcg3gvezohunjuxbq.b32.i2p)| ONLINE | Leak market |
+|[AlphaBay (Dark Tor)](http://alphabay522szl32u4ci5e3iokdsyth56ei7rwngr2wm7i5jo54j2eid.onion)| ONLINE | Leak market |
+|[Archetyp](http://4pt4axjgzmm4ibmxplfiuvopxzf775e5bqseyllafcecryfthdupjwyd.onion)| ONLINE | Leak market |
+|[ARES](http://sn2sfdqay6cxztroslaxa36covrhoowe6a5xug6wlm6ek7nmeiujgvad.onion)| ONLINE | Leak market |
+|[ASEAN](http://asap2u4pvplnkzl7ecle45wajojnftja45wvovl3jrvhangeyq67ziid.onion)| ONLINE |Leak market |
+|[BIDEN CASH (Dark Tor)](http://bidenjxwb7khlh3djrmi6zkkmggiuoh6cnxll7my7uk25ohe27pcfryd.onion)| ONLINE | Leak market|
+|[BLACKPASS](http://blackpasspn7734jqltjj2qx4qez5gcpcwujuugymky3lzcmmcfpzbyd.onion)| ONLINE | Leak market|
+|[BOHEMIA](http://bohemiaobko4cecexkj5xmlaove6yn726dstp5wfw4pojjwp6762paqd.onion)| ONLINE | Leak market |
+|[BOHEMIA](http://bohemia65jifi6rj3dcvu23tks5teidk6wllndg62vb37f57e6ymtgid.onion)| ONLINE | Leak market|
+|[BR0K3R](http://brok3r7bhcblynwpoymgarr6zwcy4ttfbhkhcmotz4lw2gcsuojgaeqd.onion/)| ONLINE | Leak market|
+|[B-P Market](https://b-p.sale/)| ONLINE | Leak market |
+|[DATABASE](http://database6e2t4yvdsrbw3qq6votzyfzspaso7sjga2tchx6tov23nsid.onion)| ONLINE | Leak market |
+|[EMPIRE MARKET](http://2a2a2abbjsjcjwfuozip6idfxsxyowoi3ajqyehqzfqyxezhacur7oyd.onion)| ONLINE | Leak market |
+|[Russian Market (Tor v3)](http://flydedxmmddhgt3vfhv6om63ra2u2x4jxginulhxb6nzcnj3wwgavwyd.onion)| ONLINE | Leak market |
+|[Russian Market (Tor v3)](http://rumarkstror5mvgzzodqizofkji3fna7lndfylmzeisj5tamqnwnr4ad.onion)| ONLINE | Leak market |
